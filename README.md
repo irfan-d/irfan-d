@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Muhammd Irfan Dharmalanga**.<br>
+Perkenalkan nama saya **Muhammad Irfan Dharmalanga**.<br>
 
 Saya seorang **Mahasiswa** di [Universitas Semarang](https://usm.ac.id/id/).<br>
 
